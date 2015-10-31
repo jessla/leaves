@@ -41,3 +41,5 @@ a gerryatric is someone who is a cool giraffe named gerry, like me! gerry the gi
 WOWW I WS SO WAESTED! 
 
 # FRUIT FLIES ARENT VERY COOL THEY FLY AROUND AND BUZZ MY FACE AND ARENT EVEN MADE OF FRUIT
+
+### WHO THE FUCK IS THE NEW FANCY GIRAFFE?
